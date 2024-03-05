@@ -1,2 +1,0 @@
-# Kyden-Taylor
-About me
